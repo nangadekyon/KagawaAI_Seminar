@@ -1,0 +1,1 @@
+# KagawaAI_Seminar
